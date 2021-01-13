@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Bienvenidos a mi blog
 
-I'm glad you are here. I plan to talk about ...
+Estoy feliz de estar aqui. Planeo hablar de los efectos de la pandemia
